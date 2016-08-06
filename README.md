@@ -1,1 +1,0 @@
-# Tanishgarg_Resume
